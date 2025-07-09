@@ -10,4 +10,4 @@
 
 本网站为您精选了丰富的欧美另类视频资源，涵盖多样化的内容分类，确保每位用户都能轻松找到喜欢的影片。支持高清在线播放，优化带宽体验，让观看更加流畅舒适。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but15 ）</span>
